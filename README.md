@@ -1,10 +1,9 @@
-Contact Info
-herqheih ( discord )
+herqhelh ( discord )
 
-fvarzad@gmail.com ( email )
+fvarzad1@gmail.com ( email )
 
 $$$$rrRRAAATTTTTZZZZZZ!!!!
-RatzR ( private 1x whitelist ) = dm me $100 cashapp or $120 credit card
+RatzR ( private 1x whitelist ) = dm me $cashapp or $120 credit card
 
 RatzR ( full source code ) = $1000 in btc/eth or 500k value in roblox limited or dm offers ig?
 
@@ -48,9 +47,3 @@ nearestpoint and aim viewer bypass built in a target aim
 Notification ui and stalker credit go to dtbcall
 
 etc and more to come
-
-RatzR Clips / Images
-Stalker ( if someone joins you through your roblox profile ( only profile ) it will notify/send a webhook based on what you choose ) this means you can find whos stalking you easily
-herqhelh ( discord )
-
-fvarzad1@gmail.com ( email )
